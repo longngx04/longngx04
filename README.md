@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Fresh CS Graduate | 🤖 Software Engineer > Passionate about building smart applications and turning data into intelligent solutions. Let's connect! 🚀
+🎓 Fresh CS Graduate | 🤖 AI Engineer > Passionate about building smart applications and apply AI solutions in Cybersecurity. Let's connect! 🚀
 
 
 ## 🌐 Socials:
